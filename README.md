@@ -4,13 +4,7 @@ Here are some cool, interesting facts about me!
 
 _
 
-Born and raised in Los Angeles, I'm proud to be a first generation college student from two immigrant parents.
-
-I have a couple of interests outside of school; which are: reading, playing video games, watching films, and listening to musicals.
-
-_
-
-*A couple of favorites in each hobby are:*
+*a couple of favorites:*
 
 **books:** The Book Thief by Markus Zusack, Six of Crows Duology by Leigh Bardugo, The Infernal Devices by Cassandra Clare
 
