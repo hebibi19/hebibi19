@@ -2,7 +2,6 @@
 I'm @hebibi19! Nice to meet you! :3
 Here are some cool, interesting facts about me!
 
-_
 
 *a couple of favorites:*
 
